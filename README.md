@@ -13,6 +13,8 @@ This is a photo i took of the most normal day in Dubai, Chocolate
 ![WhatsApp Image 2026-01-17 at 19 33 45](https://github.com/user-attachments/assets/5f2d4bd6-72c7-4e7c-82b0-ead37ef176b8)
 
 This is an image of my friend Steven
+
+DISCLAIMER: My friend NEVER uploaded a friend!!! Finn and TD, you're warned!!!
 <!--
 **pontiusponpilate/pontiusponpilate** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
